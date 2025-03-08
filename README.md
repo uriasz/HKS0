@@ -1,4 +1,4 @@
-#  ୨ৎ Como Entrar em uma Base Privada das Harkness no FiveM Usando Radmin VPN
+#  ୨ৎ Como entrar no studio das Harkness no FiveM Usando Radmin VPN
 
 ── ⋆⋅☆⋅⋆ ── ── ⋆⋅☆⋅⋆ ──────⋆⋅☆⋅⋆──── ⋆⋅☆⋅⋆ ── ── ⋆⋅☆⋅⋆ ──────⋆⋅☆⋅⋆──
 
